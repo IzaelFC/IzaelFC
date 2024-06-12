@@ -6,7 +6,7 @@
 
 ## ✨ Resumo ✨
   
-🧑 Tenho 21 anos
+🧑 Tenho 22 anos
 <br>
 🛠 Estou buscando um emprego na área como Front-End
 <br>
